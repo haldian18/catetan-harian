@@ -1,1 +1,5 @@
-# catetan-harian
+- menabung jangan boros 
+- bangun jam 03:00 AM
+- masak air hangat untuk bekal
+- olahraga 30 menit
+- jangan lupa sarapan
